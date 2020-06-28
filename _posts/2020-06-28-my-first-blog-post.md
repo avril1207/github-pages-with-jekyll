@@ -1,0 +1,3 @@
+Manis es un género de mamíferos folidotos de la familia Manidae, conocidos vulgarmente como pangolines. Tienen grandes escamas, que cubren la mayor parte de su cuerpo. Se encuentran en las zonas tropicales de Asia y de África.
+
+Los pangolines asiáticos se caracterizan por tener pabellones auditivos externos y escamas debajo de la cola. Su nombre proviene del vocablo malayo pengguling, que se traduce por "rodillo". El primer estudio anatómico reunificado y comparado entre los pangolines de África y de Asia lo realizó Francis Banguet en 1935.
